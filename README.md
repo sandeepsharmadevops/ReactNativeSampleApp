@@ -1,4 +1,4 @@
-# React Native Sample App ==qwddqwdqw mnklnqwkldfnqwdf..
+# React Native Sample App ==qwddqwdqw mnklnqwkldfnqwdf.
 # React Native Sample App .
 # React Native Sample App qwdqwdqwdqwd.
 dwqdqwdqwdqwd
